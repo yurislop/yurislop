@@ -1,7 +1,7 @@
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=N1TEB0I&color=df9fb1)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=N1TEB0I&color=ffb3cd)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://file.garden/Zi60LroOThYMNcal/Untitled%20design%20(61).png"  width="" height="" />
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://file.garden/Zi60LroOThYMNcal/d44189b6-dfb8-4f9b-986b-57b000b4e077.png"  width="" height="" />
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[*atabook*](https://whitepine.atabook.org/)ㅤㅤㅤ    𝜗ৎ ㅤㅤㅤ[*prns.cc*](https://pronouns.cc/@yurislop)ㅤ ㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
