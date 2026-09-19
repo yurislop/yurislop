@@ -28,7 +28,7 @@ ${\textsf{\color{#482578}. . then why does it feel ? }}$ </br>
 </br>
 </br>
   <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=r50omvhsrl8w858a7wx8gqxox&cover_image=false&theme=natemoo-re&show_offline=false&background_color=0e1218&interchange=false&profanity=false&hide_remaster=false&bar_color=aa7ba4&bar_color_cover=false" width="260">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=oisi8apnur2cm2isvqgcqmupe&cover_image=false&theme=natemoo-re&show_offline=false&background_color=0e1218&interchange=false&profanity=false&hide_remaster=false&bar_color=aa7ba4&bar_color_cover=false" width="260")](https://spotify-github-profile.kittinanx.com/api/view?uid=oisi8apnur2cm2isvqgcqmupe&redirect=true)>
   </a>
 </br>
 </br>
