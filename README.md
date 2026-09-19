@@ -22,7 +22,6 @@ ${\textsf{\color{#a9a2a5}bpd}}$    ༚    iwc    ༚    no ${\textsf{\color{#a97
 <p align="left">
 ${\textsf{\color{#a97aa3} if this is everything i've ever wanted. . . }}$ </br>
 <p align="center">
-
 </br>
 </br>
   <a href="https://github.com/kittinan/spotify-github-profile">
