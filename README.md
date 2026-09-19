@@ -21,7 +21,7 @@ ${\textsf{\color{#a9a2a5}bpd}}$    ༚    iwc    ༚    no ${\textsf{\color{#a97
 <img src="https://files.catbox.moe/s7bu02.png" width="530" align="right" >
 <p align="left">
 ${\textsf{\color{#a97aa3} if this is everything i've ever wanted. . . }}$ </br>
-<p align="center">
+<p align="right">
 ${\textsf{\color{#482578}. . then why does it feel ? }}$ </br>
 
 </br>
