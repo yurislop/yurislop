@@ -37,8 +37,6 @@ ${\textsf{\color{#482578}. . then why does it feel ? }}$ </br>
 shout out to  ${\textsf{\color{#a97aa3} my }}$ awesome ${\textsf{\color{#a9a2a5} oomfs }}$ ! <3 
 
 </br>
-</br>
-</br>
 @V0IDHAL0                 @oriwori</br>
 </br>
             @overoverkill                 @iIIumina</br>             
