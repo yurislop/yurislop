@@ -1,7 +1,7 @@
 <p align="center">
 
 <img src="https://files.catbox.moe/9ix2wu.png#left" width="500" align="left">
-<img src="https://komarev.com/ghpvc/?username=N1TEB0I&style=flate&color=936B8A&label=sosoVIEWS!" alt="profile view counter" width="100" align="center">
+[dysass](https://github.com/witheringheights)
 </br>
 </br>
 </br>
