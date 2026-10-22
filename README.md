@@ -1,7 +1,7 @@
 <p align="center">
 
 <img src="https://files.catbox.moe/9ix2wu.png#left" width="500" align="left">
- dysass
+ rip view counter
 </br>
 </br>
 </br>
@@ -56,5 +56,7 @@ shout out to  ${\textsf{\color{#a97aa3} my }}$ awesome ${\textsf{\color{#a9a2a5}
 </br>
 </br>
 
+[dysass](https://docs.google.com/document/d/1pFRRo-rO44C_Bo5HKUgSH3LshQOkkBTl4EXp1cuI8ZY/edit?usp=sharing)
+</br>
 @witheringheights was [#here](https://github.com/witheringheights)
 <img src="https://files.catbox.moe/u0y0aq.png#right" width="990" slign="right">
